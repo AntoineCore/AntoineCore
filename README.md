@@ -16,13 +16,12 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤName – > Auggie ! . core  .  ˎˊ˗
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![uRh2Ibq](https://github.com/user-attachments/assets/484f968e-babf-43fe-bda6-3c4c90067f28)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm a 13 - 17 y/o ! ★ ˎˊ˗ㅤㅤ ![8e8ba0e7](https://github.com/user-attachments/assets/c788f2e2-1c3d-4ef9-83c7-5eb701009037)
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIm a 13 - 17 y/o ! ★ ˎˊ˗ㅤㅤ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![992c98ad](https://github.com/user-attachments/assets/f6266289-5926-410f-962d-f53c2538eb38)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤCanadian / British ˎˊ˗
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![8cb47556 (1)](https://github.com/user-attachments/assets/cc49d764-c607-4978-8fd7-d912f9c40736) ㅤㅤㅤ![tumblr_inline_mxsg1lEmZ61rrry1n](https://github.com/user-attachments/assets/1c45932f-731d-418f-82ed-f04113d86d74)![tumblr_inline_mxsg4bDaJg1rrry1n540](https://github.com/user-attachments/assets/6a3da390-6f75-45db-bd25-e9d865cd5818)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c642682d](https://github.com/user-attachments/assets/2bb164fe-8947-4cb5-a28e-f2d26e99e6f5) ㅤㅤㅤ![tumblr_inline_mxsg1lEmZ61rrry1n](https://github.com/user-attachments/assets/1c45932f-731d-418f-82ed-f04113d86d74)![tumblr_inline_mxsg4bDaJg1rrry1n540](https://github.com/user-attachments/assets/6a3da390-6f75-45db-bd25-e9d865cd5818)
 
 
 
