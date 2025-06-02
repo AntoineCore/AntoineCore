@@ -2,8 +2,10 @@
 ㅤㅤㅤㅤㅤㅤㅤ![8ddc28ed](https://github.com/user-attachments/assets/465effc0-0099-447d-873b-e203644a45b8)ㅤㅤㅤㅤㅤㅤ![jfbXbLu](https://github.com/user-attachments/assets/14a4636c-41a0-4d7e-af88-b6aade413bf8)![cfe4774f (1)](https://github.com/user-attachments/assets/f3ca48af-5f41-482e-9e13-7adf760cf7e9)![b9b7ddec](https://github.com/user-attachments/assets/db34b50b-95f5-4194-a1b8-e3d117690402)
  ![0484318e](https://github.com/user-attachments/assets/a8369ee1-c586-4415-a5da-e31904e30010)![Rcazy05](https://github.com/user-attachments/assets/9a3b2668-f920-4c7a-8778-6c8e6b6366e4)
 
-ㅤㅤㅤㅤㅤ![43b0f81e](https://github.com/user-attachments/assets/bf9a71cd-1da1-41a1-8a70-b1f33191f436) Salut mon ami ₊˚ෆ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![becdeb18](https://github.com/user-attachments/assets/1080cd16-94f6-487d-9873-00f588569c99) ![a76d57d2](https://github.com/user-attachments/assets/efc9fb20-9324-4d77-9319-b356483bc287)
+ㅤㅤㅤㅤ![tr1VCl7](https://github.com/user-attachments/assets/db2e1efb-92a1-4e41-b127-fb79eda12547)
+ tere mu sõber ₊˚ෆ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![7cf7532f](https://github.com/user-attachments/assets/ec322fe2-b1f9-4cce-8170-f129c0fa65c6)![twWiWU6](https://github.com/user-attachments/assets/353e5986-3d5f-4e82-98e8-e9630cd362b0)
+
 
 ໒꒱🌱⠈⠂⠄ ‹𝟹 🚞〃 ˝
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c5bcb133](https://github.com/user-attachments/assets/90dc5836-226f-4eeb-b718-e50eb6912a88) ![ae8dad0e](https://github.com/user-attachments/assets/dd42bd28-45aa-4c8b-b471-ddb629fbca7f)
