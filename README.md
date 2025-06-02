@@ -7,7 +7,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![7cf7532f](https://github.com/user-attachments/assets/ec322fe2-b1f9-4cce-8170-f129c0fa65c6)![twWiWU6](https://github.com/user-attachments/assets/353e5986-3d5f-4e82-98e8-e9630cd362b0)
 
 
-໒꒱🌱⠈⠂⠄ ‹𝟹 🚞〃 ˝
+໒꒱![f9c8b0d4](https://github.com/user-attachments/assets/edd5b14d-f3c4-4371-bf8f-656234f83769)
+⠈⠂⠄ ‹𝟹 ![73df5495 (1)](https://github.com/user-attachments/assets/cccbc25d-d2ae-41c0-b5d1-43084b7396a0)
+〃 ˝
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c5bcb133](https://github.com/user-attachments/assets/90dc5836-226f-4eeb-b718-e50eb6912a88) ![ae8dad0e](https://github.com/user-attachments/assets/dd42bd28-45aa-4c8b-b471-ddb629fbca7f)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![fvxdgZ7](https://github.com/user-attachments/assets/135b2e80-de4b-4dba-8213-da781ab6a6f1)
