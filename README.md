@@ -46,7 +46,7 @@
 
 <div></div>
 
-<img src=https://file.garden/agOhD9NWGgx4Co9S/pluh.png width=450>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/pluh.png width=200>
  <div></div>
 <img src=https://file.garden/agOhD9NWGgx4Co9S/420px-Everlasting_Faust.webp>
 
