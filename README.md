@@ -46,7 +46,8 @@
 
 <div></div>
 
- 
+<img src=https://file.garden/agOhD9NWGgx4Co9S/pluh.png width=450>
+ <div></div>
 <img src=https://file.garden/agOhD9NWGgx4Co9S/420px-Everlasting_Faust.webp>
 
 $${\color{lightpink}" How\space does\space\space it\space appear, my\space form\space in\space your\space eyes?
