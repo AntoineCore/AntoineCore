@@ -38,7 +38,7 @@
        ⠀
  ⠀ ⠀<div></div>
  ⠀ ⠀
-<img src=https://file.garden/agOhD9NWGgx4Co9S/LCB_Sinner_Faust_Skill_3.gif width=300> <div> </div> <sub><sup>۶ৎ " ɪᴛ'ꜱ ꜰᴀᴜꜱᴛ. ᴀ ɢᴇɴɪᴜꜱ ᴡɪᴛʜ ᴡʜᴏᴍ ʏᴏᴜ'ʀᴇ ʟᴜᴄᴋʏ ᴛᴏ ᴄʀᴏꜱꜱ ᴘᴀᴛʜꜱ ᴇᴠᴇɴ ᴏɴᴄᴇ ɪɴ ʏᴏᴜʀ ʟɪꜰᴇ  " ! ֶ   ೀ</sup></sub>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/LCB_Sinner_Faust_Skill_3.gif width=350> <div> </div> <sub><sup>۶ৎ " ɪᴛ'ꜱ ꜰᴀᴜꜱᴛ. ᴀ ɢᴇɴɪᴜꜱ ᴡɪᴛʜ ᴡʜᴏᴍ ʏᴏᴜ'ʀᴇ ʟᴜᴄᴋʏ ᴛᴏ ᴄʀᴏꜱꜱ ᴘᴀᴛʜꜱ ᴇᴠᴇɴ ᴏɴᴄᴇ ɪɴ ʏᴏᴜʀ ʟɪꜰᴇ  " ! ֶ   ೀ</sup></sub>
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400><img src=https://file.garden/agOhD9NWGgx4Co9S/tumblr_dd1aabfab1fd3de78a494b928f61bb77_5518ff4f_1280.png width=400> 
 <div align="center"> 
 
