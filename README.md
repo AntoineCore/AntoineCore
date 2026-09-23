@@ -21,7 +21,7 @@
         
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/fa9553da.png> <div></div>
       
-<img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled318_20260816085416.png width=53> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/ALMPpt1.gif width=15> ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled318_20260816085503.png width=53>
+
 
 
 <img src=https://file.garden/agOhD9NWGgx4Co9S/Yi_Sang_ID_Card_2.png width=400>
