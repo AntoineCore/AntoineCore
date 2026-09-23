@@ -51,4 +51,4 @@
 <img src=https://file.garden/agOhD9NWGgx4Co9S/420px-Everlasting_Faust.webp>
 
 $${\color{lightpink}" How\space does\space\space it\space appear, my\space form\space in\space your\space eyes?
-Perhaps\space  within\space  the\space  clockwork\space  of\space  time\space  the\space  answer lies? "}$$
+Perhaps\space  within\space  the\space  clockwork\space  of\space  time\space  the\space  answer lies? "}$$ 
