@@ -19,7 +19,7 @@
 <img src=https://file.garden/agOhD9NWGgx4Co9S/Oekhx3h.gif width=30> 𝔹𝕐𝕀. Hello, Auggie is a minor who's in high school! If you see them using this account, then they have a switch in their mindset; this isn’t multiple personality disorder (DID). It's just something Auggie does to feel more comfortable online! They have Autism, ADHD, and Dyslexia, and have been diagnosed for three years. Auggie likes to talk in the third person, just like Faust. Auggie has a strong connection to Faust; you can say they Kin Faust in a way! ꉂ(ˊᗜˋ*)♡
  ⠀<img src=https://file.garden/agOhD9NWGgx4Co9S/305281ad.gif width=15> ⠀؛  𝕀ℕ𝔽𝕆 ♡ ꒰ 🪽 ꒱⠀ ⠀ ⠀  I love my male wife lasagna<img src=https://file.garden/agOhD9NWGgx4Co9S/u21eDFJ.gif>
 
-<img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled6_20260922232512.png width=200>
+<img src=https://file.garden/agOhD9NWGgx4Co9S/Untitled6_20260922232512%20(1).png width=500>
         
 <div align="center"> <img src=https://file.garden/agOhD9NWGgx4Co9S/fa9553da.png>
   <div></div>
